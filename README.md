@@ -1,1 +1,0 @@
-# miniprjct_Vsem
